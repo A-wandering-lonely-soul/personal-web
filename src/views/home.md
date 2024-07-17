@@ -1,6 +1,6 @@
 # **关于鱼鱼**
 
-![](https://winterfinale.com:1220/avatar/chino.jpg)
+![](https://agnw.me:1220/avatar/chino.jpg)
 
 ### 姓名：鱼鱼
 
